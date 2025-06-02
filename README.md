@@ -1,6 +1,0 @@
-Resume
-
-
-
-
-my Latest resume
